@@ -1,2 +1,0 @@
-# diybetes
-#WeAreNotWaiting
